@@ -1,4 +1,3 @@
 
-
-https://github.com/manhandsometd1408/lab2-/assets/134349428/2220d26e-1466-4576-924d-e94777268ef4
+https://github.com/BabyPig12/TH2_PTUDD-/assets/155835487/186fb730-72ec-4d13-a3c2-20003d078974
 
